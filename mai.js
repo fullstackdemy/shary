@@ -1,0 +1,12 @@
+F
+FD
+FSF
+
+FS
+F
+FF
+S
+F
+F
+F
+FS
